@@ -4,3 +4,4 @@ I am going to college at a 7:00 AM .I am present in the college at 8:30 AM.I am 
 ## Day-2
 I am present in the college at 9am.In the 9:30am Start the English proficiency test complete the test 10:30am and 10:30am start math proficiency test complete the test at 11:30am.11:30am to 1:00pm lunch break.1:00am to 2:00am expert lecture delivered by Dr.Arashdeep singh"food:A pivotal role in student's overall wellness " program in the auditorium.2:00pm to3:00pm session by cuasmic club. Than i spend my 2rd in the college.         
 ## Day-3 
+I am present in the college at 8:30 AM.I am going to college auditorium at 9 AM. Dr.Jaswider singh delivered the today lecture.thus lecture is very fantastic.He say's us physics experiments.He is a very good person.I am very lucky to meet 
