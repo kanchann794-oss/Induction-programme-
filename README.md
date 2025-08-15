@@ -7,3 +7,5 @@ I am present in the college at 9am.In the 9:30am Start the English proficiency t
 I am present in the college at 8:30 AM.I am going to college auditorium at 9 AM. Dr.Jaswider singh delivered the today lecture.thus lecture is very fantastic.He say's us physics experiments.He is a very good person.I am very lucky to meet him.He say's us the meaning of GOD G meaning generator O meaning operator and D meaning destroitor. Than 11:30 complete the session.He leave the auditorium 11:40.Than 11:40 AM expert lecture delivered by priya Darshni mam on the topic of "universal human values".She lecture delivered on topic of stress .
 ## Day-4
 I am present in the college at 9:25.My first lecture in the classroom at 9:30 AM. Chemistry lecture delivered by Mandeep mam.lecture complete at 10:30.Than 10:30 to 11:30 is my P2P class.Than lunch break.12:30 to 2:30 lecture in the college auditorium by Priya Darshni mam on the topic of"universal human values".2:30 to3:30 session by causmic club.
+## Day-5
+I am present in the college at 9:20 AM.My first lecture English by manjot next BEEE lecture delivered by mam Harpreet Next lecture math delivered by mam gagandeep Kaur.Than i am free.
